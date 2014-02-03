@@ -29,3 +29,6 @@ So, here's the recipe. Ingredients are in the Ingredients.md file, and preparati
 
 This is my first batch, and it will change before I make another, I guarantee it.
 Feel free to make suggestions. I'm open to any and all ideas.
+
+* [Ingredients](Ingredients.md)
+* [Preparation](Preparation.md)
