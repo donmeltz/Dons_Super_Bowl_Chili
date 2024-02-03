@@ -9,5 +9,6 @@
 7. Add all peppers and stir well
 8. Add, tomatoes, black beans, corn, carrot, Worcestershire sauce, Tabasco sauce
 9. Simmer, partially covered over low heat, stirring occasionally for about 3 hours
-10. Adjust seasoning with salt and pepper
-11. Top with shredded cheddar cheese, cilantro, and/or sour cream
+10. Add Cholula Hot Sauce during simmer to desired heat level
+11. Adjust seasoning with salt and pepper (1 tbsp. of coarse salt and a generous grind on the pepper mill seems to work)
+12. Top with shredded cheddar cheese, cilantro, and/or sour cream
