@@ -19,3 +19,4 @@
 - 1 can black beans (drained)
 - 2 tbsp. Worcestershire sauce
 - 1 tbsp. Tabasco sauce
+- 2 tbsp. (or more) Cholula Hot Sauce, to desired heat level
