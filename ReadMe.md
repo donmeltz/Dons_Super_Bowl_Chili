@@ -2,7 +2,7 @@
 
 ## An Open Source Chili Recipe ##
 
-Chili is one of my favorite foods of all time. I never had a single recipe that I coukld say was my favorite, as I like to experiment with various ingredients to see what their effect is on the final product. However, in 2014 I started fresh with a new **base recipe** that I've been tweaking over the years. And I can say now, this is my favorite chili recipe. It has all the elements that chiili needs. It has a bit of smoke from the meats. It has just the right level of heat, and is adjustable to your taste. A balancing sweetness from the veggies. And the variety of peppers makes it "Chili".
+Chili is one of my favorite foods of all time. I never had a single recipe that I could say was my favorite, as I like to experiment with various ingredients to see what their effect is on the final product. However, in 2014 I started fresh with a new **base recipe** that I've been tweaking over the years. And I can say now, this is my favorite chili recipe. It has all the elements that chiili needs. It has a bit of smoke from the meats. It has just the right level of heat, and is adjustable to your taste. A balancing sweetness from the veggies. And the variety of peppers makes it "Chili".
 
 In the past I had a few requirements for my chili.
 These requirements no longer apply:
