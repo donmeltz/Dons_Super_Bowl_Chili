@@ -1,22 +1,23 @@
 ### Ingredients ###
 
 - 1 lb. Thick Sliced or chunk Bacon, chopped into small pieces
-- 1 lb. smoked pork shoulder, 1/2-inch cubes
-- 2 lbs smoked beef brisket, 1/2-inch cubes (smoked means already cooked)
+- 1 lb. smoked/cooked pork shoulder, 1/2-inch or smaller cubes
+- 2 lbs smoked/cooked beef brisket, 1/2-inch or smaller cubes
 - 2 large yellow onions, diced
 - 5 cloves of garlic, minced
-- 2 (12 oz.) bottles of beer (preferably, Ubu Ale, or a stout or porter)
-- ½ tbsp. paprika
-- 2 tsp. ground cumin
-- 1 tbsp. chili powder
-- 1 roasted and peeled red pepper, dices
-- 2 roasted and peeled poblano chilies, (or ancho peppers) diced
+- 2 (12 oz.) bottles of beer (preferably, Ubu Ale, stout, or porter)
+- 1 tbsp. paprika
+- 1 tbsp. ground cumin
+- 2 tbsp. chili powder
+- 1 roasted and peeled red pepper, diced
+- 2 roasted and peeled poblano chilies, diced (can substitute Ancho, Anaheim, or Cubanelle peppers)
 - 1 small (2.6-3 oz.) can chipotle peppers w/adobo sauce, minced
 - 2 28 oz. cans diced tomatoes
-- 1 28 oz. can plum tomatoes
+- 1 28 oz. can plum tomatoes, chopped into pieces
 - 1 small carrot grated or finely diced
 - 1 can corn (drained)
 - 1 can black beans (drained)
 - 2 tbsp. Worcestershire sauce
 - 1 tbsp. Tabasco sauce
 - 2 tbsp. (or more) Cholula Hot Sauce, to desired heat level
+- Salt and Pepper
